@@ -1,0 +1,2 @@
+# 2DGameTomZsombi
+Cheating ON
